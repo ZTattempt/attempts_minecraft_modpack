@@ -1,1 +1,1 @@
-# attempts_minecraft_modpack
+# _attempt_'s Minecraft Modpack
